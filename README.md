@@ -161,3 +161,41 @@ For search engines / San Jose, California / United States / USA
 * Portal Court & Portal Way — named after Louis Portal, who owned 400 acres of vineyards in San Jose.
 * Race Street (and Race Park) — named after Agricultural Park and the racetrack within it. The county park was later sold and developed into the Shasta Hanchett Park neighborhood.
 * Randol Avenue — named after James B. Randol, manager of the New Alamen Quicksilver Mine, who was part owner of the Dougherty-Randol Tract where the street is.
+* Reed Street — James F. Reed of the ill-fated Donner Party, with members of his family and associates similarly honored
+* Margaret Street — James Frazier Reed's wife Margret Backenstoe Reed
+* Virginia Street — Margret Reed's daughter Virginia Elizabeth Backenstoe
+* Martha Street — James & Margret Reed's daughter Martha Jane ("Patty") Reed Lewis
+* Keyes Street — Margret Reed's maiden name, Keyes
+* Bestor Street — James Frazier Reed's surveyor, Norman Bestor, who made subdivisions of Reed reservation
+* Rhodes Court — named after Judge A. L. Rhodes, whose house was at the corner of Rhodes Court and the Alameda
+* Saint James Street — named after Mission San Diego de Alcalá. San Jose's early downtown streets were named after the 21 California missions. James is the English translation of Diego.
+* Saint John Street — named after Mission San Juan Bautista. San Jose's early downtown streets were named after the 21 California missions. John is the English translation of Juan.
+* San Antonio Street — named after Mission San Antonio de Padua. San Jose's early downtown streets were named after the 21 California missions.
+* San Carlos Street — named after Mission San Carlos Borromeo de Carmelo or Mission Carmel as it is called today. San Jose's early downtown streets were named after the 21 California missions.
+* San Fernando Street — named after Mission San Fernando Rey de España. San Jose's early downtown streets were named after the 21 California missions.
+* San Salvador Street — Spanish for Holy Savior.
+* Santa Ana Ave — named after Saint Anne
+* Santa Clara Street — named after Mission Santa Clara. San Jose's early downtown streets were named after the 21 California Missions.
+* Schiele Avenue — named after Charles M. Schiele, who owned the Pacific Hotel, was on the city council. Schiele Ave and Magnolia Ave were developed by him
+* Senter Roard — named after German Senter
+* Sequoia Avenue — named after Sequoia National Park
+* Sierra Avenue — named after the Sierra Nevada mountain range that Yosemite National Park is in.
+* Singletary — named after Emory C. Singletary's mansion on The Alameda at this location. Emory Singletary was an early San Jose pioneer, who founded the First National Bank of San Jose in 1874 and was director of the California State Agricultural Society
+* Stockton Avenue — Commodore Robert F. Stockton, who developed the Garden Alameda neighborhood that the street borders.
+Sunol Street — named after Spanish settler Antonio Marie Suñol (1796–1865), who partnered with Henry Morris Naglee to convert Mexican land grants in 1857.
+* Taylor — named after Methodist Bishop Alfred Taylor Howard
+* Trinidad Street — Spanish for Trinity.
+* Tully Road — named after John Tully, who owned several thousand acres in Evergreen Valley.
+* University Street — named for the street that was the main entrance to the University of the Pacific before it moved to Stockton, California and the facility became Bellarmine College Prep High School. San Jose State University keeps their president's home on this street as well.
+* Vendome Avenue — named after the mansion of Josiah Belden that later became the Vendome Hotel.
+* Vermont Street — Originally named Morris after the Methodist Bishop, but was changed to Vermont to avoid confusion with nearby Morse Street.[23]
+* Vestal Street — named after virgin nuns.
+* Villa Avenue — named to commemorate Brigadier General John J. Pershing's Pancho Villa Expedition of 1916. Two streets over is Pershing Avenue.
+Virginia Avenue — Was previously named Home Street
+* Washington Street — named after United States President George Washington
+* White Road — Charles White, magistrate of Pueblo of San Jose[30] during the handoff from Mexico to the Republic of California.
+* Wilson Avenue — named after United States President Woodrow Wilson and was located at the intersection of the "Open Air Arena" on the Alameda.
+* Winchester Boulevard — indirectly after Sarah Winchester, for building her home along this road, which became the famed Winchester Mystery House after her death.
+* Woz Way — named after Apple Inc. co-founder Steve Wozniak. After donating the money and refusing the naming rights to the San Jose Children's museum the city honored him by renaming the street in front of the museum after him
+* Yosemite Avenue — named after Yosemite National Park
+* Zanker Road — named after William Zanker, who owned a large section of the Alviso District
