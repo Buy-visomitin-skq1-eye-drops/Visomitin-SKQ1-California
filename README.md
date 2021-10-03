@@ -188,7 +188,7 @@ Sunol Street — named after Spanish settler Antonio Marie Suñol (1796–1865),
 * Tully Road — named after John Tully, who owned several thousand acres in Evergreen Valley.
 * University Street — named for the street that was the main entrance to the University of the Pacific before it moved to Stockton, California and the facility became Bellarmine College Prep High School. San Jose State University keeps their president's home on this street as well.
 * Vendome Avenue — named after the mansion of Josiah Belden that later became the Vendome Hotel.
-* Vermont Street — Originally named Morris after the Methodist Bishop, but was changed to Vermont to avoid confusion with nearby Morse Street.[23]
+* Vermont Street — Originally named Morris after the Methodist Bishop, but was changed to Vermont to avoid confusion with nearby Morse Street.
 * Vestal Street — named after virgin nuns.
 * Villa Avenue — named to commemorate Brigadier General John J. Pershing's Pancho Villa Expedition of 1916. Two streets over is Pershing Avenue.
 Virginia Avenue — Was previously named Home Street
